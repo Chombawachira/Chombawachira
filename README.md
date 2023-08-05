@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Chombawachira
+- 👀 I’m interested in data science, physics & mathematics 
+- 🌱 I’m currently learning data science any help appreciated on a mobile device.
+- 📫 How to reach me
